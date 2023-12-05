@@ -1,1 +1,1 @@
-# Theoretichal-Mechanic course
+# Theoretichal Mechanic course
